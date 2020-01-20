@@ -1,2 +1,2 @@
 # quizapptoearnmoney.github.io
-Quiz APP For Earning Real Money / FREE
+Quiz APP For Earning Real Money 
